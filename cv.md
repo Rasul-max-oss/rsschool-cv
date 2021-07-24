@@ -5,6 +5,7 @@ my photo
 *    mail: rasul.rzaev.2014@mail.ru
 *    phone: - +7 (983) 243-83-26
 *    telegram: - @Badboyuf
+*    Vk: -@badboyrr
 *    gitHub: https://github.com/Rasul-max-oss  
 ### About me
 I am a friendly person, I know how to make responsible decisions. I go in for sports and my goal is to find a promising job related to this, namely application development.
